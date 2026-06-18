@@ -1,0 +1,1 @@
+# Trabalho-Paradigmas-de-Linguagem-Programa-o-Eng-Software-2026
